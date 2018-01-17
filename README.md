@@ -1,2 +1,4 @@
 # Hello-world
-just first repository
+Hi Everyone!
+
+I am Ainura. And I would like to be part of your community. 
